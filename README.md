@@ -1,3 +1,1 @@
-@ - Soy triway340
-
-END
+http://t.me/triway340
